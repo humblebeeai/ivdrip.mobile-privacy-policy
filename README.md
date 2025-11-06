@@ -1,0 +1,1 @@
+# ivdrip.mobile-privacy-policy
